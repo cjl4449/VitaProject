@@ -16,4 +16,4 @@ Welcome to VitaProject - A twine based game where you the player breeds/breeds w
 - Anything else that players would like to see.
 
 I would also like to see this game include art but that's way out of my league.
-- So if you are into doing some nsfw art for the game hmu, or 
+- So if you are into doing some nsfw art for the game hmu, or visit the soon-to-be patreon page.
